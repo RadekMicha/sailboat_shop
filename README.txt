@@ -1,1 +1,1 @@
-Witaj zeglazu
+Witaj zeglarzu
